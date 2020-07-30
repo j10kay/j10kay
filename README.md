@@ -1,4 +1,4 @@
-### Hi there, I'm Jioke 👋
+### Hi there, I'm Jioke 👋🏾‍💻
 
 - 🔭 I’m currently a rising Senior at Howard University
 - 🌱 I’m currently seeking fulltime opportunities for Summer 2021.
